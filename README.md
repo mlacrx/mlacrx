@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I'm a second year student in chemical engineering🧪 at EPFL in Switzerland🇨🇭!
+📫 You can reach me at marie.lacroix@epfl.ch
